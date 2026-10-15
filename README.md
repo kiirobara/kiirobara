@@ -1,6 +1,6 @@
 ![image alt](https://github.com/kiirobara/kiirobara/blob/4e6d5f419c37d52069271c01ea4958bbd4d4459a/mello-mello-death-note.gif) 
 <p align="center"><a
-                    href="https://github.com/xooshi">ɞ Me ʚ </a></p>
+                    href="https://github.com/xooshi">ɞ 𝘔𝘦 ʚ </a></p>
 <!--
 **kiirobara/kiirobara** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
